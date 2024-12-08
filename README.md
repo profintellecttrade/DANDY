@@ -1,0 +1,3 @@
+Dandy is not just a token, it is the future of a meme coin on the TON blockchain, built into the exciting Dandy Alligator project. Imagine an ecosystem where fun meets real value and memes become the driving force for creating a healthy and active community.
+At the heart of the Dandy Alligator Project is the idea of ​​bringing people together through humor and creativity, creating unique opportunities for interaction. Each Dandy token is not just a digital currency, but a symbol of participation in a community where everyone can contribute and be heard. Token owners will be able not only to exchange values,
+but also to participate in exciting events, competitions and voting, shaping the future of the project.
